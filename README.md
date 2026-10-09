@@ -1,1 +1,1 @@
-# Tornando-se-especialista-em-ciberseguran-a.
+# Tornando-se-especialista-em-cibersegurança.
